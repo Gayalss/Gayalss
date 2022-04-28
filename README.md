@@ -7,17 +7,22 @@
 <p><img align="right" src="https://user-images.githubusercontent.com/44091655/165781874-78552420-e169-4aaa-b086-073b1dc54760.gif" alt="adam-pw" /></p>
 
 
-- 🌱 I’m currently learning Web Development and other programming languages
+### <div align="left">Software Engineer | Web Developer 👨‍💻 </div>  
+  
 
-- 📫 How to reach me **gayalseneviratne@gmail.com**
+- 🔭 I’m currently open for: A new job opportunity.  
+  
 
-- ⚡ Fun fact :- Food and Music🎵 are the reasons to live.
+- 🌱 Detailed-oriented, responsible, and committed engineer, with a get-it-done, on-time, and high-quality product spirit. Eager to learn, self quick learner, self-motivated, and social.  
+  
 
-<br>
-<br>
-<br>
-<br>
-<br>
+- ❓ You can reach me out at anytime using the social media links listed below. 👇💻    
+
+- ⚡ Fun fact: I use tabs over spaces. 😁  
+  
+
+<br/>
+
 
 
 
